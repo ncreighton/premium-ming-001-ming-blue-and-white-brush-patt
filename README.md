@@ -1,0 +1,2 @@
+# premium-ming-001-ming-blue-and-white-brush-patt
+Struggling to capture the authentic fluidity of Ming blue-and-white brushwork? Stop guessing the strokes and start mastering the patterns with a structured guide.  This Notion template decodes the iconic brush patterns of Ming porcelain, turning vague inspiration into a repeatable learning system. It organizes reference images, technique breakdowns
